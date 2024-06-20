@@ -18,11 +18,11 @@ tags:
 [[Cinema#[**Solidarity cinema**](https //www.solidaritycinema.com/) *site* |Solidarity cinema]]
 ### Sites
 
-###### **https://www.infoshop.org/**
+###### [**Infoshop**](https://www.infoshop.org/)
 
-https://libcom.org/
+###### [**Libcom**](https://libcom.org/)
 
-https://wnoadiarwb.us/
+###### [**My favourite person I haven't met yet**](https://wnoadiarwb.us/)
 ## Libraries
 
 ###### [**Libgen - all books**](https://libgen.is/)
