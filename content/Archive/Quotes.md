@@ -1,7 +1,3 @@
----
-share_link: https://share.note.sx/h3zc6pd3#Y48uvlZcDRiWZyvF5ciRPQOUBfWIHD8ccxPd3WxVpOk
-share_updated: 2024-06-15T04:42:08+02:00
----
 "If every ping-pong table had rackets,
 Why would anyone steal them?
 To sit on our shelves

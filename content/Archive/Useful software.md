@@ -1,7 +1,3 @@
----
-share_link: https://share.note.sx/blyht7ta#pcmmXTfbhb0dNH21XgkwAhuv91KExUnzXW3UU0ar+oU
-share_updated: 2024-06-16T15:31:30+02:00
----
 I guarantee this list will improve the wellbeing of your digital life
 
 Every day we face an army of ads. Have you every thought, "fuck! Surely they've farmed enough data to reach the holy conclusion that we're not going fall for the same bullshit ad that we skipped 9 times yesterday". We are denied access to media and software when there is infinite supply, and even [our favourite "private, end to end encrypted messenger" farms our data](https://vpnoverview.com/privacy/social-media/what-does-whatsapp-know-about-me/)

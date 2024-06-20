@@ -1,7 +1,3 @@
----
-share_link: https://share.note.sx/blyht7ta#pcmmXTfbhb0dNH21XgkwAhuv91KExUnzXW3UU0ar+oU
-share_updated: 2024-06-17T14:12:02+02:00
----
 I guarantee this list will improve the wellbeing of your digital life
 
 Every day we face an army of ads. Have you every thought, "fuck! Surely they've farmed enough data to reach the holy conclusion that we're not going fall for the same bullshit ad that we skipped 9 times yesterday". We are denied access to media and software when there is infinite supply, and even [our favourite "private, end to end encrypted messenger" farms our data](https://vpnoverview.com/privacy/social-media/what-does-whatsapp-know-about-me/)
@@ -62,15 +58,13 @@ Every day we face an army of ads. Have you every thought, "fuck! Surely they've 
 
 ### Distribution
 
-
-
 [**Printed matter**](https://www.printedmatter.org/) *site*
 
 - non-profit organization dedicated to the dissemination, understanding and appreciation of artists’ publications. 
 - open submission policy
 
 
-[**Electric zine maker**]((https://alienmelon.itch.io/electric-zine-maker) *program*
+[**Electric zine maker**](https://alienmelon.itch.io/electric-zine-maker) *program*
 
 - a printshop and art tool for making zines. This tool includes a drawing interface. You can import images, size and place, write text with any font that you have installed, smudge, paint, and a number of other options...
 
@@ -139,11 +133,11 @@ Every day we face an army of ads. Have you every thought, "fuck! Surely they've 
 
 #### Piracy (fuck intellectual property)
 
-[**Soulseek**](http://www.soulseekqt.net/news/node/1) [(android version)](https://play.google.com/store/apps/details?id=com.companyname.andriodapp1&hl=es_419) *program/app*
+[**Soulseek**](http://www.soulseekqt.net/news/node/1) [(android version)](https://play.google.com/store/apps/details?id=com.companyname.andriodapp1&hl=es_419)
 
 - Soulseek is a peer-to-peer (P2P) file-sharing network and application, used mostly to exchange music. Literally the greatest thing ever
 - [tutorial](https://steemit.com/music/@fr1sk/guide-download-hq-music-using-soulseek-free-an-ad-free-spyware-free-just-plain-free-for-linux-win-and-mac-step-by-step-with)
-- my username is *shoskips*, you can download whatever you want from my music library there =}
+
 
 [**Big converter**](https://bigconv.com/v254/) *site*
 
@@ -162,11 +156,11 @@ The pirate bay
 
 - use with a VPN and/or Tor 
 
-[**piracy wiki** (FAQ, guides, megathread of media)](https://www.reddit.com/r/Piracy/wiki/index/)
+[piracy wiki (FAQ, guides, megathread of media](https://www.reddit.com/r/Piracy/wiki/index/)
 
 ### AI
 
-[**ChatGPT**](https://chatgpt.com/auth/login)
+[ChatGPT](https://chatgpt.com/auth/login)
 ### Storage 
 
 Always assume that everything online is public. Always encrypt sensitive information 

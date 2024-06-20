@@ -1,7 +1,3 @@
----
-share_link: https://share.note.sx/p6wa4pk0#oL1TIP4Zn5vTB9eKjCEmkVBBpBa0PlkBSPuFl0cDPtE
-share_updated: 2024-06-15T18:00:25+02:00
----
 
 [**Wealth shown to scale**](https://mkorostoff.github.io/1-pixel-wealth/)
 

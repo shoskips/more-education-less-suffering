@@ -1,7 +1,3 @@
----
-share_link: https://share.note.sx/2t12h77f#I3sNoEtCnsf9zreakT+Ch6mYnGgjDX8yw1IyGTOHJnw
-share_updated: 2024-06-15T00:55:20+02:00
----
 ***Calling In vs. Out:*** Calling out is a public process of holding someone 
 accountable with the hope that it will end their toxic behavior. In 
 her article Calling IN: A Less Disposable Way of Holding Each Other 

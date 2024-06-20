@@ -1,6 +1,12 @@
 ---
-share_link: https://share.note.sx/zowpccsg#t7hlCb7adzZMC9KhQhpb/SfOZOaqYCPzQjFEP9Lwyok
-share_updated: 2024-06-16T02:47:49+02:00
+tags: 
+draft: "true"
+---
+
+---
+draft:
+-true
+
 ---
 [**Big converter**](https://bigconv.com/v254/) *site*
 
@@ -26,6 +32,7 @@ share_updated: 2024-06-16T02:47:49+02:00
 [Mach-Hommy - #RICHAXXHAITIAN](https://www.youtube.com/watch?v=MbuKbY3ch8I&t=625s)
 [Kendrick Lamar - to pimp a butterfly](https://www.youtube.com/watch?v=7djdvzRcXmY)
 [Kendrick Lamar - good kid m.a.a.d city](https://www.youtube.com/watch?v=qyHoIvYT9f0)
+nujabes - lovesick
 
 
 ### "classic"

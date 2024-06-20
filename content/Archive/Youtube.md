@@ -1,7 +1,3 @@
----
-share_link: https://share.note.sx/4nfx5310#ZYjPVoHrWPUU1/krfuLVBgbQ6prUI/D/BopjbxPBeZs
-share_updated: 2024-06-16T13:30:39+02:00
----
 [a marxist analysis of shrek](https://www.youtube.com/watch?v=pWbaUnbo-_c)
 
 Philosophical & political analysis (read @trappedontheinternet's comment on this video) 

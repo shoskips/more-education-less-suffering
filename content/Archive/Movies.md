@@ -1,7 +1,3 @@
----
-share_link: https://share.note.sx/btr7oyih#1/R8hwjdVfRpVRII1TDZeBMMZSW/7sLUZxHUDCULf6M
-share_updated: 2024-06-15T00:54:23+02:00
----
 [**Solidarity cinema**](https://www.solidaritycinema.com/) *site*
 
 - free film archive of documentaries/movies about solidarity and struggle

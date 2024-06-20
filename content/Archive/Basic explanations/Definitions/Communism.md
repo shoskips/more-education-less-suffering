@@ -1,6 +1,6 @@
 A classless, stateless, moneyless society
 
-This curtails the abolishing of police, borders, and prisons
+This means abolishing police, borders, prisons and [[personal property and private property | private property]]
 
 ~~YEah, but how do we get there?!?!~~
 There are two main paths
