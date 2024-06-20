@@ -1,6 +1,6 @@
 ---
-share_link: https://share.note.sx/blyht7ta#pcmmXTfbhb0dNH21XgkwAhuv91KExUnzXW3UU0ar+oU
-share_updated: 2024-06-17T14:12:02+02:00
+draft: "false"
+tags:
 ---
 I guarantee this list will improve the wellbeing of your digital life
 
@@ -135,7 +135,7 @@ Every day we face an army of ads. Have you every thought, "fuck! Surely they've 
 - Good for communicating/keeping a note of sensitive information
 
 
-#### Piracy ([fuck intellectual property]())
+#### Piracy (fuck [[Intellectual property]])
 
 [**Soulseek**](http://www.soulseekqt.net/news/node/1) [(android version)](https://play.google.com/store/apps/details?id=com.companyname.andriodapp1&hl=es_419)
 

@@ -1,5 +1,5 @@
 ---
-draft: "true"
+draft: "false"
 tags:
 ---
 [**Big converter**](https://bigconv.com/v254/) *site*
@@ -8,6 +8,11 @@ tags:
 - **Directly search for videos**, as opposed to initially finding the video on YouTube and copying the URL
 - You can choose the quality (to manage storage better)
 - no homescreen, subscriptions, algorithm etc
+
+[**Soulseek**](http://www.soulseekqt.net/news/node/1) [(android version)](https://play.google.com/store/apps/details?id=com.companyname.andriodapp1&hl=es_419)
+
+- Soulseek is a peer-to-peer (P2P) file-sharing network and application, used mostly to exchange music. Literally the greatest thing ever
+- [tutorial](https://steemit.com/music/@fr1sk/guide-download-hq-music-using-soulseek-free-an-ad-free-spyware-free-just-plain-free-for-linux-win-and-mac-step-by-step-with)
 
 [**Brave**](https://brave.com/) *browser*
 
@@ -75,7 +80,7 @@ God
 
 # Music videos
 
-[the books - a cold freezing night](https://www.youtube.com/watch?v=TqlVCKfX3hk)
-[memo boy - hell o tender](https://www.youtube.com/watch?v=5_fpVycjYCA)
-[The Alchemist feat. Earl Sweatshirt - "E Coli"](https://www.youtube.com/watch?v=cMaIjdfsRrs)
+![the books - a cold freezing night](https://www.youtube.com/watch?v=TqlVCKfX3hk)
+![memo boy - hell o tender](https://www.youtube.com/watch?v=5_fpVycjYCA)
+![The Alchemist feat. Earl Sweatshirt - "E Coli"](https://www.youtube.com/watch?v=cMaIjdfsRrs)
 
