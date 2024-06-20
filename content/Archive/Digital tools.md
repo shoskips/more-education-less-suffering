@@ -24,7 +24,7 @@ Every day we face an army of ads. Have you every thought, "fuck! Surely they've 
 [[Digital tools#Storage]]
 ### Media related
 
-###### [**Radio garden**]([radio.garden](https://radio.garden/)) *site/app*
+###### [**Radio garden**](https://radio.garden/)) *site/app*
 
 - nice digital radios
 
@@ -109,7 +109,7 @@ Every day we face an army of ads. Have you every thought, "fuck! Surely they've 
 
 - Simple short stories to practice listening and reading in a passive way
 
-### Internet safety 
+### Safe browsing
 
 ###### [**Tor**](https://www.torproject.org/) *browser*
 
