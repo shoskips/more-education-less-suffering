@@ -2,4 +2,4 @@
 draft:
 ---
 
-![[direct action.pdf]]
+![[direct action.pdf | 1000]]

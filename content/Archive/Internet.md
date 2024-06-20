@@ -2,7 +2,6 @@
 draft: 
 tags:
 ---
-
 ###### [**Wealth shown to scale**](https://mkorostoff.github.io/1-pixel-wealth/)
 
 ###### [**sex education**](https://www.sexfluent.ca/#sexfluent-share)
@@ -15,14 +14,14 @@ tags:
 
 ###### [**a wide range of material for you to download and print in mass quantities. Use these to educate, agitate, and transform the spaces around you**](https://en.crimethinc.com/tools)
 
-[[Cinema#[**Solidarity cinema**](https //www.solidaritycinema.com/) *site* |Solidarity cinema]]
+[[Movies and Documentaries#[**Solidarity cinema**](https //www.solidaritycinema.com/) *site*|Solidarity cinema]]
 ### Sites
 
-###### [**Infoshop**](https://www.infoshop.org/)
+###### **https://www.infoshop.org/**
 
-###### [**Libcom**](https://libcom.org/)
+https://libcom.org/
 
-###### [**My favourite person I haven't met yet**](https://wnoadiarwb.us/)
+https://wnoadiarwb.us/
 ## Libraries
 
 ###### [**Libgen - all books**](https://libgen.is/)

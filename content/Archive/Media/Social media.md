@@ -21,6 +21,8 @@ Therefore, memes usually reign supreme. Although they can be funny, light on the
 While *knowing* is great, it doesn't bring much to real life in-and-of itself. The known thing essentially functions as a building block to a greater *understanding*, which is what really generates confidence and drives us to change our behaviours.
 
 It should function as a firestarter of ideas and discussion, a primer to open minds. At the top I will put my favourites
+
+[[Digital tools#[**Big converter**](https //bigconv.com/v254/) *site* |Instagram downloader]]
 # Instagram
 
 classic clips

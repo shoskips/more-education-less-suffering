@@ -2,20 +2,27 @@
 draft: 
 tags:
 ---
+[[Digital tools#[**Brave**](https //brave.com/) *browser*] |Check]]
+[[Digital tools#[**Video speed controller**](https //chromewebstore.google.com/detail/video-speed-controller/nffaoalbilbmmfgbnbgppjihopabppdk) *extention* |These]]
+[[Digital tools#[**Big converter**](https //bigconv.com/v254/) *site*] |Out]]
 
-![a marxist analysis of shrek](https://www.youtube.com/watch?v=pWbaUnbo-_c) #marxism 
+#### Historical
+![a marxist analysis of shrek](https://www.youtube.com/watch?v=pWbaUnbo-_c) 
+#marxism 
 
 Philosophical & political analysis (read @trappedontheinternet's comment on this video) 
 
 ![How France (Still) Controls Africa](https://www.youtube.com/watch?v=36vYRkVYeVw) #neocolonialism
 ![How britain starved ireland](https://www.youtube.com/watch?v=4nL_RsAjxhg&t=121s)
 
-Clear explainations on the reality of our world
+Clear explainations on the reality of our world. 
 
-![How The Irish Got So Good At Smoking British Soldiers](https://www.youtube.com/watch?v=TcRh0b9obDU) #resistance
+![How The Irish Got So Good At Smoking British Soldiers](https://www.youtube.com/watch?v=TcRh0b9obDU) 
+#resistance
 
-![What I mean by 'anarchy'](https://www.youtube.com/watch?v=7zh2cwoXpAU ) #anarchism 
-![Why I'm an anarchist ](https://www.youtube.com/watch?v=o6X_uSFAD_A) #anarchism 
+![What I mean by 'anarchy'](https://www.youtube.com/watch?v=7zh2cwoXpAU ) 
+![Why I'm an anarchist ](https://www.youtube.com/watch?v=o6X_uSFAD_A) 
+#anarchism 
 
 
 ![marx on alienation](https://www.youtube.com/watch?v=jH5VwZZpZYQ) #marxism #alienation
@@ -37,14 +44,17 @@ Clear explainations on the reality of our world
 - has [a 3 part masterpiece](https://www.youtube.com/watch?v=VCgr2g0cQ5Y&t=5s) that i suggest anyone with doubts/interest about how an anarchist society would work. Of course, straight answers of how things will be organized are for authoritarians, anarchist theory is a guide for how the organize the 
 - since some videos aren't very visual, i have downloaded the mp3s and listen like an audiobook
 
-![the link between libralism and fascism](https://www.youtube.com/watch?v=jmT7nLDinhY) #reactionary
+![the link between libralism and fascism](https://www.youtube.com/watch?v=jmT7nLDinhY) 
+#explanation
 
 - Points out how ridiculously disconnected librals & tech bros are
 
-![The Difference Between Socialism, Communism, and Marxism Explained by a Marxist](https://www.youtube.com/watch?v=vyl2DeKT-Vs&t=599s) #definitions
+![The Difference Between Socialism, Communism, and Marxism Explained by a Marxist](https://www.youtube.com/watch?v=vyl2DeKT-Vs&t=599s) 
+#definitions
 
 !["But What About Human Nature!?" is the Dumbest Conservative Argument](https://www.youtube.com/watch?v=3k7_wE0GhVM)
-![Toxic Positivity](https://www.youtube.com/watch?v=ZJ0OKIODHgU) #argument
+![Toxic Positivity](https://www.youtube.com/watch?v=ZJ0OKIODHgU) 
+#argument Hilarious videos
 
 !["Socialism always fails" is a stupid argument](https://www.youtube.com/watch?v=nFUC0UWgdGY) #argument 
 
@@ -60,6 +70,7 @@ Clear explainations on the reality of our world
 
 - queer irish duo that make amazing video essays
 
+
 Contrapoints
 - trans woman who's ![video essays](https://www.youtube.com/watch?v=S1xxcKCGljY) are fabuloso
 - ![her skits are too](https://www.youtube.com/watch?v=QuN6GfUix7c)
@@ -74,7 +85,7 @@ Contrapoints
 
 ![change itself](https://youtu.be/TEYHUJv1rLg?si=UM-sdVjEXhu5unj4)
 
-Exists, click see in youtube. "Every man and woman is a man and woman" #philosophy 
+"Every man and woman is a man and woman" #philosophy 
 
 ![Here's why capitalism SUCKS! -- and why it needs to end! (part 1)](https://www.youtube.com/watch?v=8aHvA0KHXqM)
 

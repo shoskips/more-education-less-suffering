@@ -2,4 +2,4 @@
 draft:
 ---
 
-![[What_Is_Equality.pdf]]
+![[What_Is_Equality.pdf | 500]]

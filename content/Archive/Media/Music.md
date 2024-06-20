@@ -2,25 +2,9 @@
 draft: 
 tags:
 ---
-[**Big converter**](https://bigconv.com/v254/) *site*
-
-- Download videos (MP4) and music/podcasts (MP3) of any length from YouTube [(here's one for Instagram)](https://www.save-free.com/video-downloader/)
-- **Directly search for videos**, as opposed to initially finding the video on YouTube and copying the URL
-- You can choose the quality (to manage storage better)
-- no homescreen, subscriptions, algorithm etc
-
-[**Soulseek**](http://www.soulseekqt.net/news/node/1) [(android version)](https://play.google.com/store/apps/details?id=com.companyname.andriodapp1&hl=es_419)
-
-- Soulseek is a peer-to-peer (P2P) file-sharing network and application, used mostly to exchange music. Literally the greatest thing ever
-- [tutorial](https://steemit.com/music/@fr1sk/guide-download-hq-music-using-soulseek-free-an-ad-free-spyware-free-just-plain-free-for-linux-win-and-mac-step-by-step-with)
-
-[**Brave**](https://brave.com/) *browser*
-
-- no ads
-- AI synthesises information from multiple sources to summarise explainions/answer your questions, helping you find what you need without even entering a website
-- built in tor browser
-
-
+[[Digital tools#[**Brave**](https //brave.com/) *browser*] |Check]]
+[[Digital tools#[**Soulseek**](http //www.soulseekqt.net/news/node/1) [(android version)](https //play.google.com/store/apps/details?id=com.companyname.andriodapp1&hl=es_419)] |These]]
+[[Digital tools#[**Big converter**](https //bigconv.com/v254/) *site*] |Out]]
 # Rap
 ### "abstract"
 
