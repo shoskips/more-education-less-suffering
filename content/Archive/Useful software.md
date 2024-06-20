@@ -1,21 +1,20 @@
 ---
 share_link: https://share.note.sx/blyht7ta#pcmmXTfbhb0dNH21XgkwAhuv91KExUnzXW3UU0ar+oU
-share_updated: 2024-06-17T14:12:02+02:00
+share_updated: 2024-06-16T15:31:30+02:00
 ---
 I guarantee this list will improve the wellbeing of your digital life
 
 Every day we face an army of ads. Have you every thought, "fuck! Surely they've farmed enough data to reach the holy conclusion that we're not going fall for the same bullshit ad that we skipped 9 times yesterday". We are denied access to media and software when there is infinite supply, and even [our favourite "private, end to end encrypted messenger" farms our data](https://vpnoverview.com/privacy/social-media/what-does-whatsapp-know-about-me/)
 ###### These are all free. Although some have paid premiums, I will only describe the free versions
 
-[[Digital tools#Media related]]
-[[Digital tools#Distribution]]
-[[Digital tools#Language learning]]
-[[Digital tools#Internet safety]]
-[[Digital tools#Communication]]
-[[Digital tools#Piracy (fuck intellectual property)]]
-[[Digital tools#AI]]
-[[Digital tools#Storage]]
 ### Media related
+
+[**Big converter**](https://bigconv.com/v254/) *site*
+
+- Download videos (MP4) and music/podcasts (MP3) of any length from YouTube [(here's one for Instagram)](https://www.save-free.com/video-downloader/)
+- **Directly search for videos**, as opposed to initially finding the video on YouTube and copying the URL
+- You can choose the quality (to manage storage better)
+- no homescreen, subscriptions, algorithm etc
 
 [**Radio garden**]([radio.garden](https://radio.garden/)) *site/app*
 
@@ -61,8 +60,6 @@ Every day we face an army of ads. Have you every thought, "fuck! Surely they've 
 - From personal notes to journaling, knowledge bases, and project management, Obsidian gives you the tools to come up with ideas and organize them
 
 ### Distribution
-
-
 
 [**Printed matter**](https://www.printedmatter.org/) *site*
 
@@ -137,36 +134,21 @@ Every day we face an army of ads. Have you every thought, "fuck! Surely they've 
 - Good for communicating/keeping a note of sensitive information
 
 
-#### Piracy (fuck intellectual property)
+#### Piracy
 
-[**Soulseek**](http://www.soulseekqt.net/news/node/1) [(android version)](https://play.google.com/store/apps/details?id=com.companyname.andriodapp1&hl=es_419) *program/app*
+Remember to pirate with a VPN and/or tor (especially movies, since cinema is the most centralised and capitalised form of art, and will be cracked down on more)
 
-- Soulseek is a peer-to-peer (P2P) file-sharing network and application, used mostly to exchange music. Literally the greatest thing ever
-- [tutorial](https://steemit.com/music/@fr1sk/guide-download-hq-music-using-soulseek-free-an-ad-free-spyware-free-just-plain-free-for-linux-win-and-mac-step-by-step-with)
-- my username is *shoskips*, you can download whatever you want from my music library there =}
-
-[**Big converter**](https://bigconv.com/v254/) *site*
-
-- Download videos (MP4) and music/podcasts (MP3) of any length from YouTube [(here's one for Instagram)](https://www.save-free.com/video-downloader/)
-- **Directly search for videos**, as opposed to initially finding the video on YouTube and copying the URL
-- You can choose the quality (to manage storage better)
-- no homescreen, subscriptions, algorithm etc
+Torrent 
 
 [**Library genesis**](https://libgen.onl/)
-
-[**uTorrent**](https://www.utorrent.com/)
-
-
 
 The pirate bay
 
 - use with a VPN and/or Tor 
 
-[**piracy wiki** (FAQ, guides, megathread of media)](https://www.reddit.com/r/Piracy/wiki/index/)
-
 ### AI
 
-[**ChatGPT**](https://chatgpt.com/auth/login)
+[ChatGPT](https://chatgpt.com/auth/login)
 ### Storage 
 
 Always assume that everything online is public. Always encrypt sensitive information 

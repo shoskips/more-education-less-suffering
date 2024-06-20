@@ -39,6 +39,7 @@ named after [black panther](https://en.wikipedia.org/wiki/Black_Panther_Party)  
 [russian-funded think tank, in favour of authoritarian socialism. Although well created posts that expose the west](https://www.instagram.com/p/C8FOpaEIF1u/?img_index=1  )
 [working class history](https://www.instagram.com/p/C685xAaxLyr/)
 [british](https://www.instagram.com/p/C8IUWJoIEH9/)
+[congo wishes it wasn't home to precious resources in a capitalist world](https://www.instagram.com/p/C8ZXQwgoY_4/)
 ## original
  [hand written ideas](https://www.instagram.com/p/C1c5hqGRzVZ/?img_index=3)
  [digital art propaganda](https://www.instagram.com/p/C5K9IZ_N9zq/?img_index=1 )
@@ -48,10 +49,7 @@ themed
 https://www.instagram.com/p/C5b2axuRHpe/?img_index=4
 https://www.instagram.com/p/C52GTy9u6HV/?img_index=7
 https://www.instagram.com/p/C7mfjfUua69/?img_index=1
-https://www.instagram.com/african_stream/
 ## More
-
-https://www.instagram.com/thecradlemedia/
 https://www.instagram.com/anarchospirituality/
 [Isreali soldiers showing off to eachother how deep they are in facsist propaganda](https://www.instagram.com/p/C7U4wIiyHa9/?img_index=1)
 https://www.instagram.com/blackleftiss/
