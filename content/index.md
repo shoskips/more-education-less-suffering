@@ -1,6 +1,5 @@
 ---
-title: Welcome to Quartz
+title: Welcome
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+We suffer. If we want to reduce it, we need to learn. About the past, and plan the future. 
