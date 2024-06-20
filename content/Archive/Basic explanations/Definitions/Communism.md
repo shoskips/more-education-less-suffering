@@ -1,3 +1,9 @@
+---
+draft: 
+tags:
+  - communism
+---
+
 A classless, stateless, moneyless society
 
 This means abolishing police, borders, prisons and [[personal property and private property | private property]]

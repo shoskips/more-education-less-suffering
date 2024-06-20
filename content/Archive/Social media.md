@@ -1,3 +1,7 @@
+---
+share_link: https://share.note.sx/720j5e3r#QwC983Fh89dAAD2sxWRVLJdlF2I9JAFppFHEjYYM4sc
+share_updated: 2024-06-15T04:45:04+02:00
+---
 
 *PRETEXT*
 

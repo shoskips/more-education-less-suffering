@@ -1,4 +1,11 @@
-*Capitalism and socialism are economic systems that approach the ownership and management of the means of production differently. Although they are commonly used vague descriptors of why america good and russia bad, they have concrete definitions
+---
+draft: "true"
+tags:
+  - socialism
+  - capitalism
+---
+
+*Capitalism and socialism are economic systems that have differing approaches the ownership and management of the means of production. Although they are commonly used vague descriptors of why america good and russia bad, they have concrete definitions*
 
 **Capitalism**
 

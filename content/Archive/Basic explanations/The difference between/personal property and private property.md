@@ -1,3 +1,11 @@
+---
+draft: 
+tags:
+  - personal
+  - private
+  - property
+---
+
 The terms “personal property” and “private property” are often used interchangeably, but they have distinct meanings. **Personal property** refers to movable possessions or assets that an individual owns and uses for personal purposes, such as a toothbrush, clothes, or a vehicle. These items are typically used for personal consumption or enjoyment.
 
 On the other hand, **private property** refers to ownership of assets or resources that are not necessarily used for personal purposes. Private property can include real estate, businesses, or intellectual property, which are often used to generate income or profit. Private property can be owned by individuals, corporations, or governments.

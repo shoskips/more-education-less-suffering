@@ -1,3 +1,9 @@
+---
+draft: 
+tags:
+---
+
+
 [**Solidarity cinema**](https://www.solidaritycinema.com/) *site*
 
 - free film archive of documentaries/movies about solidarity and struggle
