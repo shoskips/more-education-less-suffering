@@ -6,6 +6,13 @@ share_updated: 2024-06-15T00:54:23+02:00
 
 - free film archive of documentaries/movies about solidarity and struggle
 - account info for a communal Plex (streaming service) account
+
+[**Big converter**](https://bigconv.com/v254/) *site*
+
+- Download videos (MP4) and music/podcasts (MP3) of any length from YouTube [(here's one for Instagram)](https://www.save-free.com/video-downloader/)
+- **Directly search for videos**, as opposed to initially finding the video on YouTube and copying the URL
+- You can choose the quality (to manage storage better)
+- no homescreen, subscriptions, algorithm etc
 ### English
 
 [Bold Native](https://www.youtube.com/watch?v=JToC6l9Xx_c) [(Trailer)](https://www.youtube.com/watch?v=KCL4jQWPQ-Q) is a fiction feature film. Charlie Cranehill, an animal liberator wanted by the United States government for domestic terrorism, emerges from the underground to coordinate a nationwide action as his estranged CEO father tries to find him before the FBI does. The film simultaneously follows a young woman who works for an animal welfare organization fighting within the system to establish more humane treatment of farmed animals. From abolitionists to welfarists, Bold Native takes on the issue of modern animal use and exploitation from several angles within the context of a road movie adventure story. The filmmakers' background in documentary informed the creative approach to Bold Native. Self-financed and shot with a four person team in real-world locations, sometimes using real activists, lawyers, and formerly imprisoned animal liberators, the film weaves an intricate tale of one of the most important issues facing America and the world morally and ecologically -- the impact and consequences of industrialized animal use. And with a character who faces prosecution and potential lifetime imprisonment under the recently passed Animal Enterprise Terrorism Act (AETA) for property crimes currently considered terrorism, the film also illuminates the danger of corporate interests influencing the law in a post-9/11 world.

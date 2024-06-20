@@ -39,6 +39,7 @@ named after [black panther](https://en.wikipedia.org/wiki/Black_Panther_Party)  
 [russian-funded think tank, in favour of authoritarian socialism. Although well created posts that expose the west](https://www.instagram.com/p/C8FOpaEIF1u/?img_index=1  )
 [working class history](https://www.instagram.com/p/C685xAaxLyr/)
 [british](https://www.instagram.com/p/C8IUWJoIEH9/)
+[congo wishes it wasn't home to precious resources in a capitalist world](https://www.instagram.com/p/C8ZXQwgoY_4/)
 ## original
  [hand written ideas](https://www.instagram.com/p/C1c5hqGRzVZ/?img_index=3)
  [digital art propaganda](https://www.instagram.com/p/C5K9IZ_N9zq/?img_index=1 )

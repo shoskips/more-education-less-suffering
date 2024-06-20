@@ -17,4 +17,4 @@ believe is normal.”
 
 ***Emergence***
 When a something becomes more than the sum of its parts.
-A sustainable amount is to be found on the border between order and chaos
+A sustainable amount is to be found on the border between order and chaos![[Screenshot 2024-06-12 021840.png]]
