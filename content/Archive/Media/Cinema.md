@@ -4,17 +4,12 @@ tags:
   - movie
   - Documentary
 ---
-[**Solidarity cinema**](https://www.solidaritycinema.com/) *site*
+###### [**Solidarity cinema**](https://www.solidaritycinema.com/) *site*
 
 - free film archive of documentaries/movies about solidarity and struggle
 - account info for a communal Plex (streaming service) account
 
-[**Big converter**](https://bigconv.com/v254/) *site*
-
-- Download videos (MP4) and music/podcasts (MP3) of any length from YouTube [(here's one for Instagram)](https://www.save-free.com/video-downloader/)
-- **Directly search for videos**, as opposed to initially finding the video on YouTube and copying the URL
-- You can choose the quality (to manage storage better)
-- no homescreen, subscriptions, algorithm etc
+[[Digital tools#[**Brave**](https //brave.com/) *browser* | Brave ]
 ### English
 
 ![(Trailer)](https://www.youtube.com/watch?v=KCL4jQWPQ-Q) 

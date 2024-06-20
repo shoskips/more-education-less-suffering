@@ -2,17 +2,14 @@
 draft: 
 tags:
 ---
-
-
 "If every ping-pong table had rackets,
 Why would anyone steal them?
 To sit on our shelves
 To remind us who we are"
 
-"At some point, you will find the "capitalisation" of "I" very sinister" 
+"I find the "capitalisation" of "I" very sinister" 
 
 "An uncompromising punk isn't intelligent. Keep atleast one yuppie suit"
-
 
 In the depth of winter, I finally learned that within me there lay an invincible summer - Camus
 
@@ -20,15 +17,13 @@ The only way to deal with an unfree world is to become so abolutely free that yo
 
 “Pessimism of the intellect, optimism of the will.” — Antonio Gramsci
 
-
-
 Nina Simone said it’s an artists duty to reflect the times. No artist with a big platform that could have massive influence wants to reflect the times by speaking out. Most powerful artists in the world becoming spineless. people with smaller or no platform left pissing in the wind to try to spread awareness about these atrocities. It’s not right.
 
  "God blessed me by making me transsexual for the same reason God made wheat but not bread and fruit but not wine, so that humanity might share in the act of creation."
 
 "Those who do not move will never notice the weight of their chains"
 
-"You can't be neuttral on a moving train"
+"You can't be neutral on a moving train"
 
 'That’s all very well, some say, and anarchy may be a perfect form of human society, but we don’t want to take a leap in the dark. Tell us therefore in detail how your society will be organised. And there follows a whole series of questions, which are very interesting if we were involved in studying the problems that will impose themselves on the liberated society, but which are useless, or absurd, even ridiculous, if we are expected to provide definitive solutions.
 

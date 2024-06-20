@@ -1,4 +1,4 @@
 ---
-draft: "false"
+draft:
 ---
 Like a radish, you know?

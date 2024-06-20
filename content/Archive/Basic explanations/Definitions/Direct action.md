@@ -1,5 +1,5 @@
 ---
-draft: "false"
+draft:
 ---
 
 ![[direct action.pdf]]

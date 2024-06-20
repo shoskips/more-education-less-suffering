@@ -1,5 +1,5 @@
 ---
-draft: "true"
+draft: true
 ---
 
 **Fascism** is a [far-right](https://en.wikipedia.org/wiki/Far-right_politics "Far-right politics"), [authoritarian](https://en.wikipedia.org/wiki/Authoritarianism "Authoritarianism"), [ultranationalist](https://en.wikipedia.org/wiki/Ultranationalism "Ultranationalism") political ideology and movement.
