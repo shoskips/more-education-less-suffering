@@ -135,7 +135,7 @@ Every day we face an army of ads. Have you every thought, "fuck! Surely they've 
 - Good for communicating/keeping a note of sensitive information
 
 
-#### Piracy (fuck intellectual property)
+#### Piracy ([fuck intellectual property]())
 
 [**Soulseek**](http://www.soulseekqt.net/news/node/1) [(android version)](https://play.google.com/store/apps/details?id=com.companyname.andriodapp1&hl=es_419)
 
