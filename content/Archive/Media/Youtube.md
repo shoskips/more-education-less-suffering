@@ -1,12 +1,13 @@
 ---
 draft: 
-tags:
+tags: 
+share_link:
 ---
-[[Digital tools#[**Brave**](https //brave.com/) *browser*] |Check]]
+[[Digital tools#[**Brave**](https//brave.com/) *browser*] |Check]]
 
-[[Digital tools#[**Video speed controller**](https //chromewebstore.google.com/detail/video-speed-controller/nffaoalbilbmmfgbnbgppjihopabppdk) *extention* |These]]
+[[Digital tools#[**Video speed controller**](https//chromewebstore.google.com/detail/video-speed-controller/nffaoalbilbmmfgbnbgppjihopabppdk) *extention* |These]]
 
-[[Digital tools#[**Big converter**](https //bigconv.com/v254/) *site*] |Out]]
+[[Digital tools#[**Big converter**](https//bigconv.com/v254/) *site*] |Out]]
 
 ![a marxist analysis of shrek](https://www.youtube.com/watch?v=pWbaUnbo-_c) 
 #marxism 

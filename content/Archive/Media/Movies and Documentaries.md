@@ -4,7 +4,7 @@ tags:
   - movie
   - Documentary
 ---
-[[Digital tools#[**Brave**](https //brave.com/) *browser*] |Check]]
+[[Digital tools#[**Brave**](https//brave.com/) *browser*] |Check]]
 
 [[Digital tools#[**Video speed controller**](https //chromewebstore.google.com/detail/video-speed-controller/nffaoalbilbmmfgbnbgppjihopabppdk) *extention* |These]]
 

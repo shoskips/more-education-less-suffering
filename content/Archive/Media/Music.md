@@ -2,11 +2,11 @@
 draft: 
 tags:
 ---
-[[Digital tools#[**Brave**](https //brave.com/) *browser*] |Check]]
+[[Digital tools#[**Brave**](https//brave.com/) *browser*] |Check]]
 
-[[Digital tools#[**Soulseek**](http //www.soulseekqt.net/news/node/1) [(android version)](https //play.google.com/store/apps/details?id=com.companyname.andriodapp1&hl=es_419)] |These]]
+[[Digital tools#[**Soulseek**](http//www.soulseekqt.net/news/node/1) [(android version)](https //play.google.com/store/apps/details?id=com.companyname.andriodapp1&hl=es_419)] |These]]
 
-[[Digital tools#[**Big converter**](https //bigconv.com/v254/) *site*] |Out]]
+[[Digital tools#[**Big converter**](https//bigconv.com/v254/) *site*] |Out]]
 # Rap
 ### "abstract"
 

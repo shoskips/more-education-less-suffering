@@ -3,7 +3,6 @@ draft:
 tags:
   - leftism
 ---
-
 *PRETEXT*
 There are community based sites like Reddit and Discord, which can serve as an online family which (especially discord) ihelp to answer your being able to interact 
 
