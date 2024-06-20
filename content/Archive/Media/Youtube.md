@@ -3,10 +3,11 @@ draft:
 tags:
 ---
 [[Digital tools#[**Brave**](https //brave.com/) *browser*] |Check]]
+
 [[Digital tools#[**Video speed controller**](https //chromewebstore.google.com/detail/video-speed-controller/nffaoalbilbmmfgbnbgppjihopabppdk) *extention* |These]]
+
 [[Digital tools#[**Big converter**](https //bigconv.com/v254/) *site*] |Out]]
 
-#### Historical
 ![a marxist analysis of shrek](https://www.youtube.com/watch?v=pWbaUnbo-_c) 
 #marxism 
 
@@ -15,7 +16,7 @@ Philosophical & political analysis (read @trappedontheinternet's comment on this
 ![How France (Still) Controls Africa](https://www.youtube.com/watch?v=36vYRkVYeVw) #neocolonialism
 ![How britain starved ireland](https://www.youtube.com/watch?v=4nL_RsAjxhg&t=121s)
 
-Clear explainations on the reality of our world. 
+![[Screenshot 2024-05-14 135023 1.png]]Clear explainations on the reality of our world. 
 
 ![How The Irish Got So Good At Smoking British Soldiers](https://www.youtube.com/watch?v=TcRh0b9obDU) 
 #resistance

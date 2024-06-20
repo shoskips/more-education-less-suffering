@@ -5,7 +5,9 @@ tags:
   - Documentary
 ---
 [[Digital tools#[**Brave**](https //brave.com/) *browser*] |Check]]
+
 [[Digital tools#[**Video speed controller**](https //chromewebstore.google.com/detail/video-speed-controller/nffaoalbilbmmfgbnbgppjihopabppdk) *extention* |These]]
+
 [[Digital tools#[**Big converter**](https //bigconv.com/v254/) *site*] |Out]]
 ###### [**Solidarity cinema**](https://www.solidaritycinema.com/) *site*
 
@@ -21,9 +23,11 @@ Bold Native is a fiction feature film. Charlie Cranehill, an animal liberator wa
 
 ![Machines in Flames](https://www.youtube.com/watch?v=qGVMu5OPu7E) 
 Watch a secret history of destruction unfold by following the footsteps of a clandestine group of French computer workers. In 1980s Toulouse, an elusive group called ‘CLODO’ began bombing computer companies. They disappeared after three years, without ever being caught or ever to be heard of again. Two film makers launch an investigation into CLODO, looking for answers, motivations and identities, but are soon frustrated by a collective that struck in the dead of night, leaving in their tracks only ashes and the sporadic line of cryptic graffiti. The film combines archival traces, a viral desktop choreography, and late-night video recordings of CLODO’s targets into a meditation on computation, destruction, and the lure of archives. 
+### Castellano
 
 #Documentary
 ![Living Utopia: Anarchism in the Spanish Revolution](https://www.youtube.com/watch?v=HAEhRRDvHHQ&t=606s)
+#english-subtitles 
 
 A thought-provoking documentary about the Spanish social revolution and the role of anarchism during that period
 
@@ -33,9 +37,8 @@ A thought-provoking documentary about the Spanish social revolution and the role
 
 The documentary features interviews with 30 anarchist participants in the Spanish revolution, alongside footage captured at that time. The documentary provides a unique blend of historical account and personal experiences, offering a comprehensive understanding of the Spanish anarchist movement and its role in the revolution.
 
-#english-subtitles 
 
-### Castellano
+![[Screenshot 2024-05-02 173747.png]]
 
 ![Pelota de Trapo](https://www.youtube.com/watch?v=085W3Kjoums)
  es sobre un niño apodado Comeuñas, perteneciente a una familia de clase obrera, tiene el sueño de ser "crack" de fútbol. Con sus amigos del barrio y una pelota de trapo crean un equipo modesto, al que llaman Sacachispas. Esta película es la inspiración para la fundación real de Sacachispas Fútbol Club.
