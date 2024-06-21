@@ -1,0 +1,429 @@
+We fist bump
+After bumping into one another 
+In the highway of the house 
+The foyer of the flat
+You signed my cap
+The shadow of the cat flap
+Loop to a
+
+Hierarchy is president and king
+
+guy weould never shoot it up 
+he was just a loveshy
+
+the trees need salmon
+
+After you were vomiting your guts out
+While I was sprawled
+All ova tha sofa
+Not making da mosta (it)
+
+Brazillian butterfly 
+
+Compulsive liar honest in the face of the state
+Me, the opposite now I'm playin a new game 
+Criss crossed with an x through my name
+Can't you just help
+Construction is the best destruction 
+Compose on top of organic decomposition 
+Sediment in the air of last systems sentiment
+Somethin the top left often forget 
+Feel like I can't leave it open ended
+Without the wires being bent in whatever direction suits best (worst) Arts not place for those
+Who are blinded by the clothes 
+And see it through their own lense and jump to conclusions, encrypt it like nazi bullshit
+
+Hard leftist revolutionary don't shave your pits
+But you must admit when the bush hairy
+Shit is sweaty ain't merry
+Takes a wizard or two to uninstall
+Factory reset Joseph and Mary 
+
+I don't usually speak like this, but neither do they
+
+The hole point of allowing someone to be mainstream is that they don't politically cross the political line
+
+
+Nazi malware
+
+Brother hand my the child
+You need both hands to steady your aim
+DJ Sabrina ain't no litmus test
+
+A colonizer's baby⁷ is not indigenous
+May the sun burn the disingenuous
+Until they remember what was forgot
+Voluntarily displaced out of ignorance
+Inventing terror creating immigrants
+Institutionalised fingerprints 
+Barely rendering the complexity of a fellow entity
+Due to figments of a superior pigment
+
+
+We have no fucking idea of what communism is 
+
+Mentally slender like an enderman 
+Melt in the rain or drown 
+Game over on the screen 
+No more 
+Figments about a superior pigment
+Hate and fear 
+Good performer now snores when he slumbers 
+Loosing points raising the sheeps numbers
+Eyes covered with cucumbers
+Painting X's on doors 
+Fainting through the floor boards 
+Always a bummer 
+
+Plan andinia
+
+Cops are amazing cause like you know 
+The moon be made of cheese n all
+Storm d10 with weez
+
+Don't buy the one with the dented tin
+Why, because the tin is dented
+
+Pay attention 
+I see you floating away 
+Driftin through the other dimension 
+Not to mention 
+Dopamine retention 
+Seen sprinkling hash on playlist 
+Called my next Ascension 
+
+Daydreams of being a campañon
+Traveled down a tandoori tandom
+To how I can write a zine
+To get them kids fired up
+Like a firework at night time
+Before Halloween wouldn't be merry
+But these things scary
+...
+How you just gonna air me 
+tall temperature meant
+somethin different for all
+one thing to know about the afterglow
+no temp employment by the tooth fairy
+when the teeth fall out and the tongue hairy
+grow weary where we go with contempt
+Her ego collapse on top of your tent 
+Brother be sent to phone an ambulance to cover your tone
+Gotta stop smokin that home grown, chokin on that perspective you call your own
+mopin up the stout with ket all up in your snout
+Forget the night better yet all you known thats etched
+isn't a virtue to be grown yet stretched
+perplexed in a maze of tatoos
+like a moose in the headlights
+can't move, phone a fiend who bite the bed bug
+Thinkin like a knight, shrug when she blunder
+Wants to forfeit, how she gonna mother another othered
+Great hugger
+Struck no luck, but by thunder
+Must be drunk night funk 
+Spends all night in a metaphorical flight
+covered in a loose rag rug, societal wreckage
+Drag the crate under the noose
+smug smile with the anti state message on the mug fetched from the 14 aisle
+charlie sheen screamed helium lets follow mycelium
+void voyager sets sail aboard the canabinoid derail
+Trains and boats have morphed 
+man stabbin freud still a kinder
+mad not to strike a match with his mom on tinder
+this dream lingers
+what does it mean, what does it prove?
+ hinder his abilty to
+swallow the seeds sewn to the groove
+Like a bad ketamine batch unfollows 
+"help soothe" on the cool bottle
+cause to breathe is luxury in full throttle
+borrow time from the gold mine 
+flash fuck struck us lucky
+mold of a hollow tomorow of adultery
+taboo like rubbery cutlery in the shrubbery of a nunnery
+recovery of buttery hands is such a drudgery
+hide right infront of me 
+Getting all stuttery and muttery
+When I get confrontary 
+Newly flowering pots sit at the front
+oven crops reside at the back
+Raised truely in the shadows 
+Never grazing new grass
+Even when tether weathers
+
+
+
+Writ to face the brunt of the smack
+out scouring the ground dissectin the maps, dismiss it as a new bird outta place in the meadow, floor of the metro
+that towering sound makin your lemon curd 
+was a red bright and blue drone
+heard a third white mother moan gremlin true
+im foaming at the mouth
+whos steering the nautica, is it klaus is it you?
+yankin the strings hanging out of my peers
+direction abaqa
+choppin us up like estaca in the trap     set out for the mouse
+Sounds generous when you forget about all them cows you submitted   
+Treason committed like no pasa nada
+Sqeakin around their minds 
+Tryna find a reason to justify their prada 
+Necklace, thinking it'll leave their crush breathless
+It's a cesspool of
+
+bombin and bombin, raining a crisis 
+Complain about isis, head full of propagandistic lices
+Can't refrain from slippin in a sciency nazi for every rip 
+in a clandestine operation called paperclip 
+The powerful will never be an enemy
+Instead a rival to give lip and masterbate over secretly 
+Assimilate or assassinate, 2 door labyrinth, in or out
+Savages procrastinate the
+
+
+
+Trains take freight through four borders frequently 
+Carriages for other orders
+Brother brewing more absinthe in the corridors 
+Agent Orange 
+Musk's musket market stewing 
+Target those whose bros bark it
+Was the fate, they are the cheese they grate
+Feta is the meta, nutralized 
+Free the products they create 
+Won't ever realise it when it's too late (today)
+Brainwashing electorial
+Shed a tear 
+ 
+Mk Ultra whiz the multa 
+in your drink with a stick 
+Their kink brings you to the brink
+Of the ice rink
+Stinking of double think 
+Can't link the winks to bring a blink
+Fall on the ice, break your brain, mail some bombs
+
+common knowledge, rare understandage
+Monopolized college sandwich
+Wasn't the nicest, bare and theft me like the finest
+Farts float smelly or gentle
+Oriental diet bloated belly microbiome riot
+Arts cry it, mountain goats
+Flip the terrain quicker than genocide and slavery
+Eastern bloc was just a line and a cabbage 
+Not a campist, but who's the bigger savage?
+
+
+
+
+Different food same shit
+
+Familitary
+
+Fascist father's favourite artist is anarcho communist
+
+bite the bullet, comb the mullet
+
+law of averages created art that spread
+eyes on hands off no red
+rick, what the fuck? you make me sick
+ill snap your dick instead 
+Goodluck there's angle for every one you bled and strangle
+hell is eternal so i wish you rabies
+thermo used by your comrades before inferno
+
+Hate slaughtering while rejecting the only means by which anyone has ever gotten free, is just a question guilt laundering
+
+Fucked the second your fight a way to itch
+
+political conciounce of a teddy bear
+those moans real or fake
+
+Disappointed that you aren't dancing to the song I'm playing through my headphones 
+
+s
+
+fringe small and present 
+annoying like mosquitos in the feather of a pheasant
+'s tail
+Feel the site where the parasite writes the bites in Braille  
+the grand narrative's nothing more than a fat ficticious tale
+Tethered to the fascistic superintendent
+Peasant frail and sleep the night tight like curly kale
+Keep straight no turns no bends
+Unsure that the gods will justify the ends
+Set sail the Cannabinoid derail
+Toying with the omnipresent hammer and crescent
+Farmer wants a meal but TV eyes swirly and computer square 
+To squeal is girly and unfurls the appeal 
+Though a single straw severed from the law claws back in row 
+cause you know, a bail measures more than the sum of its parts in a stack
+When the finger slip the nail split at the white part at the back
+Trail unpleasant, blindy fell into jail 
+Wakeboarding behind the shell of a snail, smack
+Pale sky it linger at noon 
+Goon not paying attention, floated to the other dimension via the tune
+Beats flippin the trip like flume
+The room full of photos of spoons
+A woman never bloom
+Attached to the broom
+Sweeping it under the carpet 
+To satisfy the groom
+Double knuckle grip on the pyramid no room 
+Fell in, saw my name engraved in a tomb
+Though in the VIP section, along with all the biggest baboons 
+Buckle whip, glare of the ***heir***loom 
+
+Write a rhyme that goes back in time getting the forum goin
+Just don't tellem which samples I'm throwinvarv
+
+Squeal to loose the appeal 
+Any guy can be a baby girl, but it takes a man to be a wife
+He has to thrown them out the ripped the jeans 
+Can't be neutral on a moving train
+Tell me 
+What 
+Whatever you want
+Though rolling paper unconditional 
+Forgot the colour of his blood
+
+dropped the plot like an astronaught
+
+Kee-ai
+
+Your capitalist dad told you that socialism is bad
+Faster, my friend, the old world is behind you 
+
+Armed with cobblestones and parasols
+
+Workshop to safely abort babies 
+
+Case hey mixed up
+Tryna get arrested at a liberal feminist protest
+If I cross the line then I'll invite my friends to do time
+Fillin the prison with friends of mine
+
+Hiding behind a metaphor 
+With the old tail erect like a sail,
+placed to face the furly gale
+Waves effervescent, 
+At noon the moon crescent like the root of a nail 
+Mailed tied up like a bale
+Withhold the curly kale, organic with the snail
+In touch like Braille, pass it along the trail before it gets stale 
+though the nail grew frail, as a pale male sippin on ale 
+Came to rein, Flippin the game
+Shippin them off 
+Tied up like a bale 
+We are the god who rains bail
+Education is an invitation which precedes 
+Activation which succeeds 
+The altercations brought forth by unrelenting agitation
+Lower intensity longer duration 
+In the propensity station
+In the quotation, prouder than a nation 
+
+Treat food like the holy grail 
+pigeon's bringin you the mail
+Though the hinge fall now the weather's calmer
+No libido anti depressant family looking you an embalmer 
+Receiving other mail of a brother probably stale
+
+Diamond in the rough sought out but really omnipresent 
+No remorse left for theft that brought the golf course
+Fin of a dolph lies in the rough
+Altruistic acoustic style pleasent
+Dick bigger than a horse and prehensile 
+Almost communicates in silence
+Just click whistle guerrilla stuff 
+Give it enough time defended by force to lose its kindness 
+Bending the boards, warping the origins of the essence 
+Foraging for the fulfilling chords the 4th ascending
+Amending the porridge to the kin of the 
+
+Maintained by force 
+drapes down like an objectified clown subject 
+to sell dos amigos there makes a lack of acid aminos
+Inject a boss in the cave they frack
+mazes paved in puzzles
+It's not a lifestyle mom it's just a phase
+Just looking for some grass to graze 
+Rasied loveless, to paraphrase, I embody the newest craze 
+Blaze 
+Erase
+Butterfly effectively sipped half the absinthe puddle 
+the master and the slave align their paths
+Behave while shipped with the muzzle 
+A labyrinth to the grave don't get it muddled 
+takes a brave swine to spend their bath
+amending a box to numbers one through nine
+
+Wedges me in the crux of everything 
+
+You know what else is hard?
+hen you could bending your thoughts to rhyme 
+In a scheme that flakes apart the fascist's dream
+Of a dichotomy, splintered by Michael Jackson ideology 
+In the limbo of cor
+
+Still in the same mode as before
+Just don't think about it no more
+Gonna be sore of playing 
+Need for weed
+Will be freed once we all are
+Shining like a black star
+Hell I wouldn't blame the cane
+For crushing you all the same
+As the empirical candy floss
+In the ass of your boss
+Member of the glass class
+Where you find the moss patch
+Chillin like the frosties man
+
+Publicly funded 
+But only profits are privitized 
+Cough it be there 
+Cause the revolution won't be televised 
+Make me aware 
+Of this carnival circus fare
+Of all this bullshit occupying the air 
+How this won't change despite who's mayor
+Fairer hare than turtle teddybear
+Fértil 
+That activates my third eye
+Not that activates my third leg
+Beam of energy keeps me criss cross like mog and meg
+Stock raised like stalks 
+After we pull up our socks 
+And cremate the system with foc
+Ashes blown in flashes 
+Dragging entropy through the  molasses 
+Back to the graph we extrapolated 
+To which everything was overrated 
+Stated the very facts it needed to hide
+Somewhere in a bucket full of pride
+When I slide past an empty pair of hands
+Beside a request to fill them with cans
+Blame the black and tans
+Uniform that is, I'm not racist 
+Sometimes the value lies behind the face
+But when theres no bitcoin miner
+shit can't be deciphered
+cant walk on wings
+brings
+
+Dark meat forearms grinding herb all night
+
+Can't ignore the facsim that exists
+Cause your not oppressed 
+
+shoot the last shot f absynth 
+quasi treatment turning this maze withhin a labrynth
+
+said the photo was to be 9 mega or less
+mines 9.2 i said 
+fuck the passport and masturbated instead
+
+Expandin my perspective beyond my own, smokin that home grown
+
+You tell me to me not to spit on the floor
+channel 4
