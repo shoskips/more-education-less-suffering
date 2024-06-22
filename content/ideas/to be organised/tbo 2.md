@@ -1,0 +1,20 @@
+to stretch a short story long
+
+“It doesn’t matter who started it.” “Two wrongs don’t make a right.” “Clean up your own mess.” “Do unto others...” “Don’t be mean to people just because they’re different.” Perhaps we should decide whether we’re lying to our children when we tell them about right and wrong, or whether we’re willing to take our own injunctions seriously. Because if you take these moral principles to their logical conclusions, you arrive at anarchism.
+
+“What I mean by ‘daring’ is a readiness to walk into terrain which none
+of us explored before. What I mean by ‘caution’ is the perception that
+our ability to approach this terrain grows only to the extent that all
+those like us approach it with equal daring. We’re reaching for a field
+of possibilities that can be reached only if we move together as we’ve
+never moved before; we proceed with caution because those who
+move too far ahead will be caught without a lifeline to the rest. What I
+think is taking place around me is an advance consisting of small steps
+taken by all simultaneously. Each small step creates the conditions for
+taking the next. Any move that prevents the continued advance of all
+cuts off the possibility of further advance by any.”
+
+A research team in Rwanda recently found groups of young gorillas actively seeking out and dismantling traps, to prevent their brethren from falling victim. The research team observed one gorilla bending and breaking the tree, while another disabled the noose, repeating the process for multiple traps. The team believes that gorillas have witnessed a correlation between these devices and the deaths of their peers, prompting their desire to neutralize them.
+
+Those who fall for propaganda Aren't fit to raise a child
+But since they tell usmore children, more success The battle is uphill But atleast we don't have an extra weight to carry Listen to the whole thing It clears up a lot of what might seem complicated about our world. It's oppressors vs oppressed. You are all oppressed. To differeI was literally raised to believe Churchill was just a good leader that managed his country wellBack when you didn't have to sugarcoat whit3 supr3macy. This is the moral licence for genocide As Bobby Sands said, you can't put a rope around the neck of an idea. Britain are one of the lesser free countries Nobody does what they want, I cause they're trapped on a prison of their own beliefs Did all of this fucked up shit happen cause of a big grey cloud?Watch this and share with those who need it. This is a leader giving his population the moral licence for genocide. Brits in general are kinda trapped in a prison of their own beliefs. Not exactly the coolest cats on the block and they have no one else to blame but their perverted colonial ancestors and themselves for being too limp to resist/change the status quo Even the oppressors are oppressed by the oppressive ideas that have infected thei9r brains. Our government is literally infested Indians who are white supremacists.While the average gravy drinking fascist is miserable from playing minesweeper in an office all day because thatcher deleleted the useful labpurInternalizimg that the past can't be changed They fill us with bullets So that they can continue Filling eachother with insecurities Because that's what it means to be a man Go for a walk Digest your emotionsConsider that capitalism Might be at the rootOf your unhappiness oats populaireA: hot soup (wet) - keep away from literature g bombed as you read this. And that freeing Palestine will free you from Palestinians have been murdered by Palestinian'ts since before 1948I did not know that a year ago. Nor did I know about many genocides committed by the west However, I did hear about 1 day in New York a million times SatisfechometerPain populaire You can still eat juicy meat on top of the corpse of capitalism, it's just that you'll be free to eat lentils tooMan who has a square wheel, gets round one and starts cutting hair on the street for freeThere is a fund for all of the workers They can spend their time how they wantDo you blow the office building? 

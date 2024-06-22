@@ -1,0 +1,1 @@
+i think leftists (including myself) should constantly remind eachother of the fact that we've been brought up in a capitalist work

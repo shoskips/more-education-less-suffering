@@ -1,0 +1,1 @@
+This is the case in Barcelona cause the locals' have a raised class consciousness from colonialism by the fascists and now mass tourism which is somewhat neocolonialism administered by the catalan bourgeoisie. This has cultivated casual leftism, ![[Screenshot 2024-05-01 012125.png]]

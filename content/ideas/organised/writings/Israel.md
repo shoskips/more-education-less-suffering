@@ -1,0 +1,1 @@
+The anti-semetic western empire started the Zionist project to a) get rid of the Jews from the west and b) expand their empire towards gas, oil and their enemies 

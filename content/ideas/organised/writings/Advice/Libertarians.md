@@ -1,0 +1,1 @@
+![[tyranny.com.gov.png]]
