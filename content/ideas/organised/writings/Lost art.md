@@ -1,1 +1,0 @@
-I'm not schizophrenic, in just consuming the art that would've been created in a communist society

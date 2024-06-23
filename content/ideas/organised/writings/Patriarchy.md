@@ -1,1 +1,0 @@
-The struggle agains patriarchy is the most successful since women and queers are geographically omnipotent, therefore it has been capitalised upon.It has become a trend and used as propaganda 

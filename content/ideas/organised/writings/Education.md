@@ -1,1 +1,0 @@
-Our schools look like prisons because they're designed to produce wage slaves, not an educated population![[Screenshot 2024-06-15 045753.png]]![[Screenshot 2024-06-14 212604.png]]

@@ -1,1 +1,0 @@
-Is there such thing as expropriation?

@@ -1,1 +1,0 @@
-"Give them bread and circuses, they will never revolt"

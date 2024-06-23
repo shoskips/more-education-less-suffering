@@ -1,1 +1,0 @@
-The stroke image as my couch photo
