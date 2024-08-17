@@ -79,6 +79,10 @@ Every day we face an army of ads. Have you every thought, "fuck! Surely they've 
 
 - a printshop and art tool for making zines. This tool includes a drawing interface. You can import images, size and place, write text with any font that you have installed, smudge, paint, and a number of other options...
 
+###### [**Bookletify**](https://wieke.gitlab.io/bookletify/) *site*
+
+* takes a pdf and reorders the pages so it can be printed as a booklet.
+
 #### Language learning 
 
 ###### [**Spanish Dictionary**](https://www.spanishdict.com/) *website/app*
