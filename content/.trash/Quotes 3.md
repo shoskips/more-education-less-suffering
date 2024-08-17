@@ -1,13 +1,11 @@
 ---
-draft: false
+draft: 
 tags:
 ---
 "If every ping-pong table had rackets,
 Why would anyone steal them?
 To sit on our shelves
 To remind us who we are"
-
-"If the revolution isn't internal, it will be corrupted by ego"
 
 "I find the "capitalisation" of "I" very sinister" 
 
