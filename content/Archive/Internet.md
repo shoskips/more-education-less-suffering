@@ -6,7 +6,7 @@ tags:
 
 ###### [**sex education**](https://www.sexfluent.ca/#sexfluent-share)
 
-###### [**degrowth**](https://damaged.bleu255.com/Degrowth/)
+###### [**degrowth**](https://damaged.bleu255.com/Degrowth/) - systems that are inherently corrupt cannot possibly be reformed. they must be ~~destroyed~~ replaced
 
 ### Archives 
 

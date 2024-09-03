@@ -1,1 +1,0 @@
-Food. Yes, it doesn't come from the sky (well, sun and water technically do). Labour is required to deliver food to your plate. Back in the day, we had to forage for food. But lucky for us, that was like a trillion years ago. We have since discovered efficent agricultural systems. We learnt that creation is no way near as labourious as maintenence
