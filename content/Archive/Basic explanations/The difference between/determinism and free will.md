@@ -5,3 +5,4 @@
 > Studies on highly successful people have proven again and again that success is not the result of strong willpower and the ability to overcome resistance, but rather the result of smart working environments that avoid resistance in the first place
 
 > The smartest way to deal with this kind of limitation is to cheat. Instead of forcing ourselves to do something we don’t feel like doing, we need to find a way to make us feel like doing what moves our project further along. Doing the work that need to be done without having to apply too much willpower requires a technique, a ruse.
+
