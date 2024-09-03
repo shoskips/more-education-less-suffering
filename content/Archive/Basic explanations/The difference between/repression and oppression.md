@@ -1,0 +1,1 @@
+Oppression is what masters do to slaves, and repression is what masters do to slaves-in-revolt. In other words, oppression targets pacified populations or groups, while repression targets those (usually individuals or smaller groups) who revolt against their oppression.

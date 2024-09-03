@@ -7,9 +7,37 @@ Why would anyone steal them?
 To sit on our shelves
 To remind us who we are"
 
+We often say, with pride (and privedge),
+"I'm not interested in politics".
+We might as well say, "I'm not interested in my standard of living, my health, my job, my rights, my freedoms, my future, never mind anyone elses." 
+
+However, contradictingly, it's our favourite topic of converation. We love to complain because it gives us an intoxicating feeling of superiority. We complain about our oppression because 
+
+1. It is relatable - Everbody *knows* how much more expensive the bread has gotten since last week
+2. It is emotional - Everbody *feels* the pain of the increase in the price of bread
+3. It feels good to complain. 
+4. It proves that we aware - We like to teach. We like to feel smart. Feeling in this context is really just showing. I don't think it necesarily comes from a place of not feeling smart, but I think it is highly driven by the fact we want to be perseived as smart
+
+I often hear leftist throwing in a little constructive comment about whose fault it is (the rich) or, if they want to go a little deeper towards the root, why it is. to make those who have been misguided by propaganda
+
+We just don't render it as political, because it's been so deeply engrained in us that we just see it as human nature: *It is hidden in plain sight*
+
+We should accept that we are oppressed. We do not aspire to become the oppressors. 
+
+I worked in a multi-level-marketing scheme, and it was an amazing learning experience. I participated in a [[microcosm]] of our society. I knew the people on top (of one branch of the pyramid atleast) 
+
+People still be saying that oil prices are skyrocketing because of Russia and Ukraine. babe, pls. It's another distraction from the real reason why your poor
+![[Screenshot 2024-09-02 111159.png]]
+
+
+Whenever, They do
+
+, however, like to complain about it. The intoxicting rush from talking bad about a system without actually trying to understand it in order to overcome it, is sad.
+If we want to have control over our lives, we need to build communities. 
+
 "If the revolution isn't internal, it will be corrupted by ego"
 
-"I find the "capitalisation" of "I" very sinister" 
+"The "capitalisation" of "I" is very sinister" 
 
 "An uncompromising punk isn't intelligent. Keep atleast one yuppie suit"
 

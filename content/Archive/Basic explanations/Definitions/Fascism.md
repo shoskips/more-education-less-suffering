@@ -2,6 +2,11 @@
 draft: true
 ---
 
+"The liberty of a democracy is not safe if the people tolerate the growth of
+private power to a point where it becomes stronger than their democratic state itself. That, in its essence, is fascism - ownership of government by an individual, by a group."
+~ Franklin Delano Roosevelt
+
+
 **Fascism** is a [far-right](https://en.wikipedia.org/wiki/Far-right_politics "Far-right politics"), [authoritarian](https://en.wikipedia.org/wiki/Authoritarianism "Authoritarianism"), [ultranationalist](https://en.wikipedia.org/wiki/Ultranationalism "Ultranationalism") political ideology and movement.
 Typically characterized by a [dictatorial](https://en.wikipedia.org/wiki/Dictator "Dictator") leader, centralized [autocracy](https://en.wikipedia.org/wiki/Autocracy "Autocracy"), [militarism](https://en.wikipedia.org/wiki/Militarism "Militarism"), forcible suppression of opposition, belief in a natural [social hierarchy](https://en.wikipedia.org/wiki/Social_stratification "Social stratification"), subordination of [individual interests](https://en.wikipedia.org/wiki/Individualism "Individualism") for the perceived good of the nation or race, and strong regimentation of society and the economy.[[2]](https://en.wikipedia.org/wiki/Fascism#cite_note-Britannica-2)[[3]](https://en.wikipedia.org/wiki/Fascism#cite_note-m-w-3)
 
